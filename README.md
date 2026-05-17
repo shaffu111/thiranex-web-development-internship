@@ -21,8 +21,9 @@ The internship focuses on developing real-world applications and strengthening b
 Post URL:https://www.linkedin.com/posts/shafeeq-uddin-1b4767331_started-an-full-stack-internhsip-at-thiranex-share-7460937656496001024-n99d?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFOVelgB_FIq8kS3F8gGL2p3PVI0YrZ9daw
 ---
 ## 📬 Connect With Me
-- 💼 [LinkedIn][[(https://www.linkedin.com/in/your-profile)](https://www.linkedin.com/in/jashwanth-reddy-gunreddy-3b9562327/)](https://www.linkedin.com/in/shafeeq-uddin-1b4767331/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/shafeeq-uddin-1b4767331/)
 - 🐙 [GitHub][((https://github.com/shaffu111))](https://github.com/shaffu111)
-- 📧 Email: gjashwanthreddy18@gmail.com
+- 📧 Email: shafeeequddinahmad111@gmail.com
+- 
 
 ---
